@@ -1,1 +1,1 @@
-https-www.futuro3dvirtual.com
+www.futuro3dvirtual.com
